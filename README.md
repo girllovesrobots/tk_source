@@ -1,4 +1,6 @@
 # Kiting the PNW
+Hi I'm Torin, an avid kiteboarder and certified [International Kiteboarding Organization (IKO)](https://www.ikointl.com) instructor.
+
 
 ## Interested in beginner kiteboarding lessons at Jetty Island, Everett?
 * [Click here for info](https://www.urbansurfkiteboarding.com/faqs)
